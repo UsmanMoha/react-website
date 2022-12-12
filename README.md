@@ -1,1 +1,1 @@
-Site wb vitrime, projet personnel
+Site wb vitrine, projet personnel
